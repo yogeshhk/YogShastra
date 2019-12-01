@@ -7,6 +7,20 @@ Wonderful to see fit and flexible, in those asanas!!
 ### Why Meditate?
 * Change your Brain's Default Mode  https://www.youtube.com/watch?v=aAVPDYhW_nw&list=PLuOCYTZXw6HbE12JZGGD7-1aa_8BXyqLu&index=5 
 
+# Yog 
+- yuj: to unite: body and mind, atma to paramatma
+- Keep it open source, anyone can add, but preserve core essence, spread it free
+- Body as onion peels: स्थुल, सूक्श्म, अति सुक्श्म, आत्मा
+- dhyan means attention, to thoughts like a witness 
+- thoughts come from mind, truth is in no-mind state
+
+## References:
+- Sam Harris: Waking Up;
+   - Religion is primarily for social conduct, may have personal enhancement
+   - Spirituality is for humanity, universal, away from religion, deeper experience
+   - Mindfulness is a state of being clear, non-judgmental and un-distracted attention to the contents of consciousness (mind) whether pleasant or unpleasant.
+   - Mindfulness gives better, more skilled, perspective to look at things
+   
 ### Mental Toughness
 * Cold water bath
 * Unplug mobile, keep only for all
