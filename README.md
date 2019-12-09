@@ -28,3 +28,7 @@ Notes are prepared in both, presentation and course-handouts formats. They are o
 - Patanjali Yogasutra Marathi  https://www.youtube.com/watch?v=kHrGwDBNNHs&list=PLAEwG9XjiVKjKGbbgPyb4DlN8sR-V5qRV&index=2
 - Chinmaya Mission https://www.chinfo.org/index.php/downloads
 - Swami Jnaneshvara Bharati https://www.swamij.com/ https://www.swamij.com/yoga-sutras-narrative.htm
+- Yog Guru Dheeraj 
+- Vyoma Sanskrit Pathshala 
+- The Sanskrit Channel 
+- Patanjali Yog Sutra Guru Maa, Rajen Vakil
