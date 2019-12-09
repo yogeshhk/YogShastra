@@ -2,13 +2,19 @@
 
 Notes, for my name's sake!!
 
-## Plan
+YogSutra by Patanjali is terse, loaded, no nonsense (no spiritual mombo jumbo, u turns, etc)
 
-To compile understandings, good points from readings/watchings done on the topics of Yog, collectively called as Yog-Shastra (Science of Yoga)
+Objective is to compile understandings, from readings/watchings done on the topics of Yog, collectively called as Yog-Shastra (Science of Yoga).
+
 Notes are prepared in both, presentation and course-handouts formats. They are organized into following subtopics:
 - Introduction
 - Ashtang Yog (8 limbs of Yoga)
 - Yog Sutra (Patanjali's Yog Sutra and interpretations)
+
+## To Dos
+- Prepare Sanskrit by Sanskrit: Chinfo courses, read books
+- Prepare body by Yogasana
+- Prepare breath by 3SRB
 
 ## For further reading/watching
 - YOGA SUTRA STUDY http://yogasutrastudy.info/yoga-sutra-introduction/
