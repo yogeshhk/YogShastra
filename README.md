@@ -32,3 +32,4 @@ Notes are prepared in both, presentation and course-handouts formats. They are o
 - Vyoma Sanskrit Pathshala 
 - The Sanskrit Channel 
 - Patanjali Yog Sutra Guru Maa, Rajen Vakil
+- Zenyoga basic course on YouTube by Ashish Shuka

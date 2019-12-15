@@ -4,6 +4,21 @@ Wonderful to see fit and flexible, in those asanas!!
 
 <img src="images/sunsal.jpg" />
 
+Meditation can not be done. It will happen. Prepare body and breathe-mind:
+
+## Zen Yoga by P J Saher and Dr Ashish Shukla
+3SRB : 3 Step Rhythmic Breathing
+3 steps: technique volume rhythm
+Lie down, heavy book on naval, hands behind head, lift belly normally and not chest
+
+Refinements for better breath-mind control:
+1. Only Chest (123 (4) 56)
+2. Only Belly (123 (4) 56)
+3. Both chest and Belly in Pashchimottanasan, head up (123 (4) 56)
+4. Breath in 5 installments, Blow out by mouth
+5. 5-5-5-5 inhale keep exhale keep
+6. Inhale, hold breath, touch chin, swallow 5 times
+
 ### Why Meditate?
 * Change your Brain's Default Mode  https://www.youtube.com/watch?v=aAVPDYhW_nw&list=PLuOCYTZXw6HbE12JZGGD7-1aa_8BXyqLu&index=5 
 
