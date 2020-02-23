@@ -6,6 +6,13 @@ Wonderful to see fit and flexible, in those asanas!!
 
 Meditation can not be done. It will happen. Prepare body and breathe-mind:
 
+## Naval Ravikant
+- Still: In "The Secrets" Osho has mentioned 112 meditation techniques, originally mentioned in Sanskrit text "Vigyana BHairavi" a condensed set of recipes.
+One that suited Naval is of Stillness. 1 hr, first thing in the morning, just sit still, in very comfortable position, back supported. Do this for 60 days.
+Thoughts from past bubble up and they get sorted over time. A day comes when no such thoughts come and the INBOX becomes ZERO. You feel bliss.
+- Meditation can not be done, it happens on its own.
+- Happiness is state of lack of desires
+
 ## Zen Yoga by P J Saher and Dr Ashish Shukla
 3SRB : 3 Step Rhythmic Breathing
 3 steps: technique volume rhythm
