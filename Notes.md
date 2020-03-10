@@ -6,6 +6,12 @@ Wonderful to see fit and flexible, in those asanas!!
 
 Meditation can not be done. It will happen. Prepare body and breathe-mind:
 
+## Osho
+The english word "Meditation" is wrong. It needs something to meditate upon. Whereas
+ thats not what "dhyana" is. It is actually being 'in meditation' or 'is meditation'.
+ 
+dhyana (sanskrit) => jhana (paali) => chaana (chinese) => zen (japanese).
+
 ## Naval Ravikant
 - Still: In "The Secrets" Osho has mentioned 112 meditation techniques, originally mentioned in Sanskrit text "Vigyana BHairavi" a condensed set of recipes.
 One that suited Naval is of Stillness. 1 hr, first thing in the morning, just sit still, in very comfortable position, back supported. Do this for 60 days.
