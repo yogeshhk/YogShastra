@@ -4,7 +4,7 @@ Wonderful to see fit and flexible, in those asanas!!
 
 <img src="images/sunsal.jpg" />
 
-Meditation can not be done. It will happen. Prepare body and breathe-mind:
+Meditation can not be done. It will happen. Prepare body and breathe-mind.
 
 ## Osho
 The english word "Meditation" is wrong. It needs something to meditate upon. Whereas

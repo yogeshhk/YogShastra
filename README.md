@@ -2,9 +2,9 @@
 
 Notes, for my name's sake!!
 
-YogSutra by Patanjali is terse, loaded, no nonsense (no spiritual mombo jumbo, u turns, etc)
-
 Objective is to compile understandings, from readings/watchings done on the topics of Yog, collectively called as Yog-Shastra (Science of Yoga).
+
+Main theme would be YogSutra by Patanjali, a terse, loaded, no nonsense (no spiritual mumbo jumbo, u turns, etc) explanation of Yog
 
 Notes are prepared in both, presentation and course-handouts formats. They are organized into following subtopics:
 - Introduction
@@ -12,11 +12,13 @@ Notes are prepared in both, presentation and course-handouts formats. They are o
 - Yog Sutra (Patanjali's Yog Sutra and interpretations)
 
 ## To Dos
-- Prepare Sanskrit by Sanskrit: Chinfo courses, read books
+- Prepare understanding for resources mentioned below.
+- Prepare Sanskrit: Chinfo courses, read books
 - Prepare body by Yogasana
 - Prepare breath by 3SRB
 
 ## For further reading/watching
+- Swami Rama SRC Youtube Channel https://www.youtube.com/user/SRCindia/videos
 - YOGA SUTRA STUDY http://yogasutrastudy.info/yoga-sutra-introduction/
 - Yoga Sutras of Patanjali by Dr. Bharat Thakur https://www.youtube.com/watch?v=yKq4ctrdPnQ&list=PL9Ee1tJEhfcTOR26FalrM6g9vOmltp7ad
 - Importance of Yoga https://www.youtube.com/watch?v=oyr-I6z7j78&list=PL9Ee1tJEhfcTFjwWn3qtXjBrJzknVD7W6
