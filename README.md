@@ -17,6 +17,66 @@ Notes are prepared in both, presentation and course-handouts formats. They are o
 - Prepare body by Yogasana
 - Prepare breath by 3SRB
 
+Wonderful to see fit and flexible, in those asanas!!
+
+<img src="images/sunsal.jpg" />
+
+Meditation can not be done. It will happen. Prepare body and breathe-mind.
+
+## Sadhguru Inner Enginering Workshop
+- Paranayam: prana (breath, energy) aayaam (expansion, new dimension) prepares breath
+- Pratyahaar: withdraw senses, see signals coming out and letting go
+- Dharana: focus on breath or mantra and let go, it dies down later
+- Dhyan: happens, from thinking to being, you are in meditation, or are meditation
+
+- Resistance builds strength (mental and physical and social)
+
+- GO SLOW, RELAX, NAP while sitting up, vacation in mind, mantra/breath as anchors
+- Its never about goals, but enjoying the process
+- Blissful and happy 24 hrs
+- Don't try to be miserable, even in pain.... let go.
+
+- Subconscious mind is the body, consciousness mind is thoughts. 
+- Meditation happens when there are no thoughts but just the body, "chitta", that default state is blissful.
+
+
+## Osho
+The english word "Meditation" is wrong. It needs something to meditate upon. Whereas
+ thats not what "dhyana" is. It is actually being 'in meditation' or 'is meditation'.
+ 
+dhyana (sanskrit) => jhana (paali) => chaana (chinese) => zen (japanese).
+
+## Naval Ravikant
+- Still: In "The Secrets" Osho has mentioned 112 meditation techniques, originally mentioned in Sanskrit text "Vigyana BHairavi" a condensed set of recipes.
+One that suited Naval is of Stillness. 1 hr, first thing in the morning, just sit still, in very comfortable position, back supported. Do this for 60 days.
+Thoughts from past bubble up and they get sorted over time. A day comes when no such thoughts come and the INBOX becomes ZERO. You feel bliss.
+- Meditation can not be done, it happens on its own.
+- Happiness is state of lack of desires
+
+## Zen Yoga by P J Saher and Dr Ashish Shukla
+3SRB : 3 Step Rhythmic Breathing
+3 steps: technique volume rhythm
+Lie down, heavy book on naval, hands behind head, lift belly normally and not chest
+
+Refinements for better breath-mind control:
+1. Only Chest (123 (4) 56)
+2. Only Belly (123 (4) 56)
+3. Both chest and Belly in Pashchimottanasan, head up (123 (4) 56)
+4. Breath in 5 installments, Blow out by mouth
+5. 5-5-5-5 inhale keep exhale keep
+6. Inhale, hold breath, touch chin, swallow 5 times
+
+### Why Meditate?
+* Change your Brain's Default Mode  https://www.youtube.com/watch?v=aAVPDYhW_nw&list=PLuOCYTZXw6HbE12JZGGD7-1aa_8BXyqLu&index=5 
+
+# Yog 
+- yuj: to unite: body and mind, atma to paramatma
+- Keep it open source, anyone can add, but preserve core essence, spread it free
+- Body as onion peels: स्थुल, सूक्श्म, अति सुक्श्म, आत्मा
+- dhyan means attention, to thoughts like a witness 
+- thoughts come from mind, truth is in no-mind state
+
+
 ## For further reading/watching
 - Zenyoga Basic Course Ashish Shukla Spiritual Course https://www.youtube.com/watch?v=e3rCTV7OaoI&list=PLFLpZ_QuDbhGWwI2hoSaU9P4W7fUalOwx
 - Patanjali Yoga Sutras | Explanation by Anandmurti Gurumaa https://www.youtube.com/watch?v=9oEfutjvAi0&list=PLTfDtaImcXfsvYGDfjxrEPQ03DgpVD7Tc&index=2&t=0s
