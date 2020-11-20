@@ -77,6 +77,7 @@ Refinements for better breath-mind control:
 
 
 ## For further reading/watching
+- Patanjali Yogasutra https://patanjaliyogasutra.in/
 - Yoga Youtube channel https://www.youtube.com/playlist?list=PLAPrVB8wngPnPDrlpOeesA6WPv9auWJij
 - Zenyoga Basic Course Ashish Shukla Spiritual Course https://www.youtube.com/watch?v=e3rCTV7OaoI&list=PLFLpZ_QuDbhGWwI2hoSaU9P4W7fUalOwx
 - Patanjali Yoga Sutras | Explanation by Anandmurti Gurumaa https://www.youtube.com/watch?v=9oEfutjvAi0&list=PLTfDtaImcXfsvYGDfjxrEPQ03DgpVD7Tc&index=2&t=0s
