@@ -79,6 +79,7 @@ Refinements for better breath-mind control:
 ## For further reading/watching
 - Patanjali Yogasutra https://patanjaliyogasutra.in/
 - Yoga Youtube channel https://www.youtube.com/playlist?list=PLAPrVB8wngPnPDrlpOeesA6WPv9auWJij
+- Yogasutra Sanskrit Channel https://www.youtube.com/watch?v=K6tuUaUhsyQ
 - Zenyoga Basic Course Ashish Shukla Spiritual Course https://www.youtube.com/watch?v=e3rCTV7OaoI&list=PLFLpZ_QuDbhGWwI2hoSaU9P4W7fUalOwx
 - Patanjali Yoga Sutras | Explanation by Anandmurti Gurumaa https://www.youtube.com/watch?v=9oEfutjvAi0&list=PLTfDtaImcXfsvYGDfjxrEPQ03DgpVD7Tc&index=2&t=0s
 - Patanjali's Yogasutra | Dr. Kausthub Desikachar https://www.youtube.com/watch?v=uG5h9h9cWxs&list=PLkcXr3YO0UgpYbQU_Tm8l9pZiCrlj1qCx
@@ -98,4 +99,5 @@ Refinements for better breath-mind control:
 - Vyoma Sanskrit Pathshala 
 - The Sanskrit Channel 
 - Patanjali Yog Sutra Guru Maa, Rajen Vakil
-- Zenyoga basic course on YouTube by Ashish Shuka
+- 3SRB Global https://www.youtube.com/channel/UC-NbHQjKQviwE7A6iQ-Y_NA/videos
+- Zenyoga by Ashish Shuka https://www.youtube.com/c/DeepKnowledgeSpirituality/playlists
