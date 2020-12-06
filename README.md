@@ -99,5 +99,6 @@ Refinements for better breath-mind control:
 - Vyoma Sanskrit Pathshala 
 - The Sanskrit Channel 
 - Patanjali Yog Sutra Guru Maa, Rajen Vakil
+- Introduction To Three Step Rhythmic Breathing(3SRB) Part 1 By Mr.Deepak Dhingra https://www.youtube.com/watch?v=mg5hLC-GbAM
 - 3SRB Global https://www.youtube.com/channel/UC-NbHQjKQviwE7A6iQ-Y_NA/videos
 - Zenyoga by Ashish Shuka https://www.youtube.com/c/DeepKnowledgeSpirituality/playlists
