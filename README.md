@@ -26,6 +26,8 @@ Meditation can not be done. It will happen. Prepare body and breathe-mind.
 
 
 ## For further reading/watching
-- [Yogasutra Study](https://yogasutrastudy.info/about-2/)
+- [Atha Yoganusasanam](https://sanskritdocuments.org/sites/athayoga/sutra_ch1n.html)
+- [Swami J Patanjali Yog Sutra] (https://swamij.com/yoga-sutras.htm)
 - [Anandmurti Gurumaa](https://www.youtube.com/watch?v=9oEfutjvAi0&list=PLTfDtaImcXfsvYGDfjxrEPQ03DgpVD7Tc&index=2&t=0s)
 - [Zenyoga by Ashish Shuka](https://www.youtube.com/c/DeepKnowledgeSpirituality/playlists)
+
